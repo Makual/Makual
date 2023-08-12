@@ -2,4 +2,4 @@
 [Kaggle](https://www.kaggle.com/makual)
 [Steam](https://steamcommunity.com/id/makual)
 [VK](https://vk.com/makual)
-[Telegram](https://vk.com/MakuaI)
+[Telegram](https://t.me/MakuaI)
